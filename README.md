@@ -3,5 +3,8 @@
 
 ***I love to listen to music.*** I listen to music in any setting. Doing homework, relaxing, on a walk, playing sports anywhere anytime. I think music is a incredicle tool for anyone because there is so many different types of music. There is music for anyone! I believe music can help people in unimagainable ways. I love music and I would love to share my top 10 songs
 
-*I listened to many songs over the summer my favoirtes are added to this playlist*
-https://open.spotify.com/playlist/5C28RIZhddNGebRWjfSefG?si=ihgIu7fvT7OBDnTFYlgU1A&utm_source=copy-link&pi=g9Kerpq5SrWwS
+*I listened to many songs over the summer my favorites are added to this playlist*
+
+[Spotify Playlist](https://open.spotify.com/playlist/5C28RIZhddNGebRWjfSefG?si=ihgIu7fvT7OBDnTFYlgU1A&utm_source=copy-link&pi=g9Kerpq5SrWwS)
+
+![Here is my collage](Collage.png)
